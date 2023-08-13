@@ -1,1 +1,0 @@
-# Sidcup-Family-Golf-Website-Clone
